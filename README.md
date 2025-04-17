@@ -1,4 +1,4 @@
-Shitty software and Minecraft mod producer
+Straight white male. I write shitty code and expect people to like them.
 
 CurseForge: https://www.curseforge.com/members/thomasdarkson/projects
 
